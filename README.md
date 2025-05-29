@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Newcodepari
 - 👀 I’m interested in ability to code without bugs.
-- 🌱 I’m currently learning everthing...
+- 🌱 I’m currently learning everything...
 - 💞️ I’m looking to collaborate on any project or research
 - 📫 How to reach me is probably upto you but please reach out/help me
 - 😄 Pronouns: She / IsGreat
